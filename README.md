@@ -1,0 +1,2 @@
+# researchshare
+Future Market Insights (FMI) is a leading market intelligence and consulting firm. We deliver syndicated research reports, custom research reports and consulting services, which are personalized in nature. FMI delivers a complete packaged solution, which combines current market intelligence, statistical anecdotes, technology inputs, valuable growth insights, an aerial view of the competitive framework, and future market trends.
